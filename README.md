@@ -1,2 +1,3 @@
 # Online-education
 Globalizationand technology make people can o anywhere with fast. but since pandemic, many people do anything from home like work from home (WFH), learning from home (for student), shoppping from hote (delivery), and etc. this change make people must be adapt to this change especially activities whicch need interaction between people.  
+student who usually have interaction must be do anything from home. in this casewe want to see how student face this change, which student who adaptable to this situation and this research  hope can help how to handle the student since the changes of habits. 
